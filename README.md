@@ -1,5 +1,5 @@
 # My Goals: 
-make money, get healthy, de-stress, balance, travel, love and laugh more and... help as many people as I can along the way.
+Get command of this course! Be the master of my destiny!
 
 ## Country I am interested in: 
 Brazil, and I want to expolore some alternate Asian countries
@@ -14,9 +14,9 @@ a rooftop penthouse with a private patio and pool
 
 
 ## Life goals: 
-same as my goals
+make money, get healthy, de-stress, balance, travel, love and laugh more and... help as many people as I can along the way.
 
-
+## Girl Goals
 ![](./img.jpg)
 
 ![NOICE!](./img.jpg)
