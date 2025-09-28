@@ -18,5 +18,3 @@ make money, get healthy, de-stress, balance, travel, love and laugh more and... 
 
 ## Girl Goals
 ![](./img.jpg)
-
-![NOICE!](./img.jpg)
