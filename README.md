@@ -13,5 +13,6 @@ a rooftop penthouse with a private patio and pool
 ## Life goals: 
 make money, get healthy, de-stress, balance life, travel, love and laugh more and... help as many people as I can along the way.
 
-## Girl Goals
+## Girl Goals (Two heads are better than one!)
 ![](./img.jpg)
+![](./img2.jpg)
